@@ -15,7 +15,7 @@ Finding valid and working Teachable coupons can sometimes feel like searching fo
 
 Official Website and Newsletters: Teachable occasionally offers promotions directly on their website or through their email newsletters. Subscribing to their newsletter is a great way to stay updated on the latest deals.
 Course Creator Promotions: Many educators running courses on Teachable offer exclusive coupons. Follow your favorite instructors on social media or subscribe to their newsletters to stay in the loop.
-Affiliate Websites: Websites that partner with Teachable often have exclusive coupons. A quick Google search for <a href="https://medium.com/@anil.27788/teachable-coupon-code-925478221c3f">Teachable discount coupon</a> will lead you to several affiliate sites.
+Affiliate Websites: Websites that partner with Teachable often have exclusive coupons. A quick Google search for <a href="https://yupbeat.com/blog/teachable-coupon-code/">Teachable discount coupon</a> will lead you to several affiliate sites.
 Tech Blogs and Forums: Tech bloggers and online forums often share exclusive deals and promo codes.
 Special Events: Look out for promotions during major sales events, Black Friday, Cyber Monday, or back-to-school seasons.
 
