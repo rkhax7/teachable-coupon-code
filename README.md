@@ -58,7 +58,7 @@ Teachable
 
 **Step 5**: After filling in the basic details, it’s time to apply the coupon.
 
-**Step 6**: Check and insert your or Teachable promo code (if any) in the Add a coupon code box, then tap the Apply button.
+**Step 6**: Check and insert your or [Teachable promo code](https://teachable-coupon-code.weebly.com/) (if any) in the Add a coupon code box, then tap the Apply button.
 
 **Step 7**: Boom! You have successfully added Teachable to your purchase. Now to complete your order, press on the Purchase plan to pay for it.
 
